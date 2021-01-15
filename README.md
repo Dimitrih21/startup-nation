@@ -1,0 +1,1 @@
+![Screen Intégration](https://dimitrih.promo-42.codeur.online/startup-nation/startup_desktop.png)
